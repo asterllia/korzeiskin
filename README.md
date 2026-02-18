@@ -45,3 +45,6 @@
 
 ## [Komori - Ryugumink Ryuk's Style(Megumin - Eihi](https://drive.google.com/file/d/116LwlB1gp1L5juLcbIU7Q33eiTQScJpF/view?usp=sharing)
   [![](https://imgur.com/jaf9MVc.png)](https://drive.google.com/file/d/116LwlB1gp1L5juLcbIU7Q33eiTQScJpF/view?usp=sharing)
+
+## [bahamete (Yamemasita mod v2)](https://drive.google.com/file/d/1kqY4AwACcrTCMQgfPNKlTuP9Ds2BvLrn/view?usp=sharing)
+  [![](https://imgur.com/R5CAbyR.png)](https://drive.google.com/file/d/1kqY4AwACcrTCMQgfPNKlTuP9Ds2BvLrn/view?usp=sharing)
