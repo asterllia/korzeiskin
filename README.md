@@ -48,3 +48,9 @@
 
 ## [bahamete (Yamemasita mod v2)](https://drive.google.com/file/d/1kqY4AwACcrTCMQgfPNKlTuP9Ds2BvLrn/view?usp=sharing)
   [![](https://imgur.com/R5CAbyR.png)](https://drive.google.com/file/d/1kqY4AwACcrTCMQgfPNKlTuP9Ds2BvLrn/view?usp=sharing)
+
+## [DEBIL](https://drive.google.com/file/d/19vlP0UHtPJE3158DOwD8LdhnRW1iBDMd/view?usp=sharing)
+  [![](https://imgur.com/kPqTTQi.png)](https://drive.google.com/file/d/19vlP0UHtPJE3158DOwD8LdhnRW1iBDMd/view?usp=sharing)
+
+## [insert skin name here](insert skin link here)
+  [![](insert skin screenshot link here)](insert skin link here)
