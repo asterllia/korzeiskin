@@ -1,4 +1,4 @@
-# korzei skins - asterllia template 
+# korzei skins - thanks asterllia for help <3
 (please ignore nvidia icons in the bottom right)
 
 ## [Rafis Korzei Kuromi Edit](https://drive.google.com/file/d/13CRsa4WJnB9n42qyXyVHmmqrEb-vPdUY/view?usp=sharing)
