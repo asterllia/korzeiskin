@@ -8,3 +8,21 @@
 
 ## [Recia](https://drive.google.com/file/d/11slr10I6TDFWjzM40CuaZZ96I9KOcOc6/view?usp=sharing)
   [![](https://imgur.com/R6AzdJN.png)](https://drive.google.com/file/d/11slr10I6TDFWjzM40CuaZZ96I9KOcOc6/view?usp=sharing)
+
+## [-Sytho Alfie v1.1](https://drive.google.com/file/d/1wV8wsZvJRBnEuNGuAMnQxDULgrADpv91/view?usp=sharing)
+  [![](https://imgur.com/Sc5DAOF.png)](https://drive.google.com/file/d/1wV8wsZvJRBnEuNGuAMnQxDULgrADpv91/view?usp=sharing)
+
+## [insert skin name here](insert skin link here)
+  [![](insert skin screenshot link here)](insert skin link here)
+
+## [insert skin name here](insert skin link here)
+  [![](insert skin screenshot link here)](insert skin link here)
+
+## [insert skin name here](insert skin link here)
+  [![](insert skin screenshot link here)](insert skin link here)
+
+## [insert skin name here](insert skin link here)
+  [![](insert skin screenshot link here)](insert skin link here)
+
+## [insert skin name here](insert skin link here)
+  [![](insert skin screenshot link here)](insert skin link here)
