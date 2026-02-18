@@ -43,5 +43,5 @@
 ## [styl hongkong](https://drive.google.com/file/d/1PIZUo5SvPgyy3v7dFHNxl5UtxwLOqpen/view?usp=sharing)
   [![](https://imgur.com/4a12h7R.png)](https://drive.google.com/file/d/1PIZUo5SvPgyy3v7dFHNxl5UtxwLOqpen/view?usp=sharing)
 
-## [insert skin name here](insert skin link here)
-  [![](insert skin screenshot link here)](insert skin link here)
+## [Komori - Ryugumink Ryuk's Style(Megumin - Eihi](https://drive.google.com/file/d/116LwlB1gp1L5juLcbIU7Q33eiTQScJpF/view?usp=sharing)
+  [![](https://imgur.com/jaf9MVc.png)](https://drive.google.com/file/d/116LwlB1gp1L5juLcbIU7Q33eiTQScJpF/view?usp=sharing)
