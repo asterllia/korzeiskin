@@ -41,7 +41,7 @@
   [![](https://imgur.com/d2qd5el.png)](https://drive.google.com/file/d/1vLmysv30RgvlqRmTuq507SpRz5eELPkx/view?usp=sharing)
 
 ## [styl hongkong](https://drive.google.com/file/d/1PIZUo5SvPgyy3v7dFHNxl5UtxwLOqpen/view?usp=sharing)
-  [![](https://imgur.com/undefined.png)](https://drive.google.com/file/d/1PIZUo5SvPgyy3v7dFHNxl5UtxwLOqpen/view?usp=sharing)
+  [![](https://imgur.com/4a12h7R)](https://drive.google.com/file/d/1PIZUo5SvPgyy3v7dFHNxl5UtxwLOqpen/view?usp=sharing)
 
 ## [insert skin name here](insert skin link here)
   [![](insert skin screenshot link here)](insert skin link here)
