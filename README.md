@@ -21,8 +21,8 @@
 ## [- Ende DT -](https://drive.google.com/file/d/1ybYrGmv4MNKmCiDzBfAsIUd9Fo5lO7nd/view?usp=sharing)
   [![](https://imgur.com/TMM8P1m.png)](https://drive.google.com/file/d/1ybYrGmv4MNKmCiDzBfAsIUd9Fo5lO7nd/view?usp=sharing)
 
-## [insert skin name here](insert skin link here)
-  [![](insert skin screenshot link here)](insert skin link here)
+## [kimlippu](https://drive.google.com/file/d/1k_C-2F5Q5o1PEVi5nCS-il-I9psx3WGG/view?usp=sharing)
+  [![](https://imgur.com/JudFRkW.png)](https://drive.google.com/file/d/1k_C-2F5Q5o1PEVi5nCS-il-I9psx3WGG/view?usp=sharing)
 
 ## [insert skin name here](insert skin link here)
   [![](insert skin screenshot link here)](insert skin link here)
