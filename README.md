@@ -19,7 +19,7 @@
   [![](https://imgur.com/MumByAG.png)](https://drive.google.com/file/d/1iKs5Rr0QeDJjGccmW-7do7TVNSGsMoNs/view?usp=sharing)
 
 ## [- Ende DT -](https://drive.google.com/file/d/1ybYrGmv4MNKmCiDzBfAsIUd9Fo5lO7nd/view?usp=sharing)
-  [![](https://imgur.com/undefined.png)](https://drive.google.com/file/d/1ybYrGmv4MNKmCiDzBfAsIUd9Fo5lO7nd/view?usp=sharing)
+  [![](https://imgur.com/TMM8P1m)](https://drive.google.com/file/d/1ybYrGmv4MNKmCiDzBfAsIUd9Fo5lO7nd/view?usp=sharing)
 
 ## [insert skin name here](insert skin link here)
   [![](insert skin screenshot link here)](insert skin link here)
