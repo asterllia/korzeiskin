@@ -1,10 +1,10 @@
 # korzei skins - thanks asterllia for help <3
-<p align="center">
 <a href="https://osu.ppy.sh/users/11921815">
   <img src="https://a.ppy.sh/11921815"  
        width="150"
        height="150"></a>
-(please ignore nvidia icons in the bottom right)
+
+  (please ignore nvidia icons in the bottom right)
 
 ## [Rafis Korzei Kuromi Edit](https://drive.google.com/file/d/13CRsa4WJnB9n42qyXyVHmmqrEb-vPdUY/view?usp=sharing)
   [![](https://imgur.com/gMMaOaP.png)](https://drive.google.com/file/d/13CRsa4WJnB9n42qyXyVHmmqrEb-vPdUY/view?usp=sharing)
