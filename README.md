@@ -52,5 +52,5 @@
 ## [DEBIL](https://drive.google.com/file/d/19vlP0UHtPJE3158DOwD8LdhnRW1iBDMd/view?usp=sharing)
   [![](https://imgur.com/kPqTTQi.png)](https://drive.google.com/file/d/19vlP0UHtPJE3158DOwD8LdhnRW1iBDMd/view?usp=sharing)
 
-## [insert skin name here](insert skin link here)
-  [![](insert skin screenshot link here)](insert skin link here)
+## [INSTAWOELSD](https://drive.google.com/file/d/1tmEggufSGwOJASMJqT_rYKUOkS4SmeKK/view?usp=sharing)
+  [![](https://imgur.com/WMctJQ1.png)](https://drive.google.com/file/d/1tmEggufSGwOJASMJqT_rYKUOkS4SmeKK/view?usp=sharing)
