@@ -24,5 +24,5 @@
 ## [kimlippu](https://drive.google.com/file/d/1k_C-2F5Q5o1PEVi5nCS-il-I9psx3WGG/view?usp=sharing)
   [![](https://imgur.com/JudFRkW.png)](https://drive.google.com/file/d/1k_C-2F5Q5o1PEVi5nCS-il-I9psx3WGG/view?usp=sharing)
 
-## [insert skin name here](insert skin link here)
-  [![](insert skin screenshot link here)](insert skin link here)
+## [Aristia Cyan Instafade](https://drive.google.com/file/d/1k_C-2F5Q5o1PEVi5nCS-il-I9psx3WGG/view?usp=sharing)
+  [![](ihttps://imgur.com/Zjp3mHt.png)](https://drive.google.com/file/d/1k_C-2F5Q5o1PEVi5nCS-il-I9psx3WGG/view?usp=sharing)
