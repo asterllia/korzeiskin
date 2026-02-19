@@ -76,7 +76,7 @@
   [![](https://imgur.com/mYeY4lB.png)](https://drive.google.com/file/d/164GjUJ_CZLBYYbi4CVvpi7aVWUX5dSVw/view?usp=sharing)
 
   ## [clacked rafis ninerik](https://drive.google.com/file/d/15HJGhRQBEIQa_sMIpBZ5h5Tf-sWVBbMe/view?usp=sharing)
-  [![]https://imgur.com/Th0zHsR.png)](https://drive.google.com/file/d/15HJGhRQBEIQa_sMIpBZ5h5Tf-sWVBbMe/view?usp=sharing)
+  [![](https://imgur.com/Th0zHsR.png)](https://drive.google.com/file/d/15HJGhRQBEIQa_sMIpBZ5h5Tf-sWVBbMe/view?usp=sharing)
 
 
 
