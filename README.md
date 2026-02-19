@@ -78,6 +78,10 @@
   ## [clacked rafis ninerik](https://drive.google.com/file/d/15HJGhRQBEIQa_sMIpBZ5h5Tf-sWVBbMe/view?usp=sharing)
   [![](https://imgur.com/Th0zHsR.png)](https://drive.google.com/file/d/15HJGhRQBEIQa_sMIpBZ5h5Tf-sWVBbMe/view?usp=sharing)
 
+  ## [kablaze](https://drive.google.com/file/d/1Ao4YPw4bgWWURgVJ3RRZG1OEnlz3hP5U/view?usp=sharing)
+  [![](https://imgur.com/Anrttir)](https://drive.google.com/file/d/1Ao4YPw4bgWWURgVJ3RRZG1OEnlz3hP5U/view?usp=sharing)
+
+
 
 
 
