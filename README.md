@@ -73,7 +73,7 @@
   [![](https://imgur.com/yWJxjVN.png)](https://drive.google.com/file/d/1rEtV_uYvExsSxhdjhvRHkwF8PrhmU3JN/view?usp=sharing)
 
  ## [toke charlotte edit](https://drive.google.com/file/d/164GjUJ_CZLBYYbi4CVvpi7aVWUX5dSVw/view?usp=sharing)
-  [![](https://imgur.com/undefined)](https://drive.google.com/file/d/164GjUJ_CZLBYYbi4CVvpi7aVWUX5dSVw/view?usp=sharing)
+  [![](https://imgur.com/mYeY4lB.png)](https://drive.google.com/file/d/164GjUJ_CZLBYYbi4CVvpi7aVWUX5dSVw/view?usp=sharing)
 
   ## [insert skin name here](insert skin link here)
   [![](insert skin screenshot link here)](insert skin link here)
